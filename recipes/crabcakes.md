@@ -1,10 +1,10 @@
 # Maryland-style Crabcakes
 
 ## Ingredients
-- Lump crab meat
-- mayo
-- mustard
-- cracker crumbs
+- Lump crab meat - 1kg
+- Dukes mayo
+- Hot and spicy  mustard
+- cracker crumbs 
 - old bay
 - lemon
 
